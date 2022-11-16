@@ -1,2 +1,7 @@
-# MynameisSymon.github.io
-Symon's
+# Hi Guys MynameisSymon.github.io
+---
+### The things I like
+- Basketball
+- Food
+- her
+
