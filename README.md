@@ -5,7 +5,8 @@
 - Food
 - her
 
-![THE `DIESEL` MY IDOL](https://www.nba.com/players)
+![YEYEYE](![image](https://user-images.githubusercontent.com/118153124/202374807-a9a76d75-5e77-4574-a110-ec6b58cf678b.png)
+)
 
 [`Personal Fb`](https://www.facebook.com/profile.php?id=100016667089129)
 👀👌👌👌👌
