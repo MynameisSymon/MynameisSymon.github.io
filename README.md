@@ -5,4 +5,5 @@
 - Food
 - her
 ---
-![THE DIESEL MY IDOL](https://www.nba.com/players)
+![THE `DIESEL` MY IDOL](https://www.nba.com/players)
+[`Personal Fb`](https://www.facebook.com/profile.php?id=100016667089129)
